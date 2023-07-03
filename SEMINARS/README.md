@@ -1,0 +1,1 @@
+Seminars during the course.
